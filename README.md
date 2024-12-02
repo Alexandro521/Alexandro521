@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=iuricode&color=006bed)
+![](https://komarev.com/ghpvc/?username=Alexandro521&color=006bed)
 
 ## MY skills
 
